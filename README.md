@@ -1,4 +1,4 @@
-## #English ^^
+## #English
 
 Hey you. Welcome to my profile. It's not a perfect one (still), but hope to share something with you. I'm currently working by myself on personal projects with focus on web development. Hope you enjoy.
 
