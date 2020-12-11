@@ -14,3 +14,5 @@ Olá. Bem vindo ao meu perfil. Não está perfeito (ainda), mas espero ter algo 
 ## Vamos nos conectar?
 * [Meu Instagram](https://instagram.com/i.geanp)
 * [Meu Linkedin](https://www.linkedin.com/in/geanp)
+
+>Quero colocar uma marca no universo — Steve Jobs
